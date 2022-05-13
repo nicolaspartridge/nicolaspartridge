@@ -1,2 +1,2 @@
 - Freelance Software Developer
-- I'm interested in Blockchain development, VR/AR, Economics
+- Computer Science, Mathematics, Economics, Philosophy, Blockchain / Crypto Ecosystem Developer
