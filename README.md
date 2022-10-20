@@ -1,2 +1,2 @@
-- Freelance Software Developer
+- Software Engineer
 - Computer Science, Mathematics, Economics, Philosophy, Blockchain / Crypto Ecosystem Developer
