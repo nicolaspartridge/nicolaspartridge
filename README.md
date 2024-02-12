@@ -1,2 +1,2 @@
 - Software Engineer
-- Computer Science, Mathematics, Economics, Philosophy, Blockchain / Crypto Ecosystem Developer
+- Computer Science, Mathematics, Economics, Philosophy
